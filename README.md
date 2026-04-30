@@ -1,7 +1,7 @@
 
 
 &nbsp;<div align="center">
-<img width="511" height="488" alt="tumblr_33fa0aa65507310ec21b9a5f123622cb_338d9b53_2048-removebg-preview (1)" src="https://github.com/user-attachments/assets/fab4d298-fdb7-4a4c-b8a0-dcf032a4e66f" />
+<img width="554" height="450" alt="smopkins" src="https://github.com/user-attachments/assets/edce8314-b166-40a7-9d12-2478b559a26b" />
 
 
 <p align="center"> ${\textsf{\color{#C7B395}very socially awkward at timesㅤㅤㅤㅤㅤc+h almost always encouraged}}$
